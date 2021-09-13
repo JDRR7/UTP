@@ -1,0 +1,1 @@
+Activities and projects that I were carried out in cycle II (MinTic - UTP)
